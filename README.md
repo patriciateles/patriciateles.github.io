@@ -1,6 +1,6 @@
 # Profa. Patrícia Teles 
 
-**Departamento de Artes | UFRN**
+Departamento de Artes | UFRN
 
 **patriciateles@ufrn.br**
 
